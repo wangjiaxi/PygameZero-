@@ -1,2 +1,2 @@
 # PygameZero 中文文档
-PygameZero Official document Chinese version
+٩(๑❛ᴗ❛๑)۶
